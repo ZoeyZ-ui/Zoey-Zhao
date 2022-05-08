@@ -1,5 +1,5 @@
 # Zoey-Zhao
-- **Tippie College of Business, The University of Iowa**
+- I'm currently studying at **The University of Iowa ** 
 - *Iowa City, IA*
-- This site was built using [Linkedln](https://www.linkedin.com/in/zoey-z-a34839197/).
+- Contact with me on [Linkedln](https://www.linkedin.com/in/zoey-z-a34839197/).
 
